@@ -1,0 +1,2 @@
+# XINSOOGLOBAL
+akses bug
